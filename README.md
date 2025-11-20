@@ -1,4 +1,4 @@
-# Hi there, I'm Oscar, 👋
+# Hi there, I'm Oscar 👋
 
 ### 👨‍💻 About Me
 
